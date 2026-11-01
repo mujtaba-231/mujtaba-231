@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Software Engineering student turning coffee into code (and sometimes chaos)<br>👨‍💻 Professional Googler, part-time bug creator, full-time bug fixer<br>☕ Powered by caffeine, curiosity, and “why is this working now?” moments<br>🔗 Connect → [LinkedIn](https://www.linkedin.com/in/mujtaba-dar-7818201b0/?utm_source=chatgpt.com) | [Instagram](https://www.instagram.com/m.mujtaba1112?utm_source=chatgpt.com)<br>
+🚀 Software Engineering student writing code (and sometimes chaos)<br>👨‍💻 Professional Googler, part-time bug creator, full-time bug fixer<br>☕ Powered by caffeine, curiosity, and “why is this working now?” moments<br>🔗 Connect → [LinkedIn](https://www.linkedin.com/in/mujtaba-dar-7818201b0/?utm_source=chatgpt.com) | [Instagram](https://www.instagram.com/m.mujtaba1112?utm_source=chatgpt.com)<br>
 
 
 ## 🌐 Socials:
